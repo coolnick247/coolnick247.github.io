@@ -1,1 +1,0 @@
-# coolnick247.github.io
